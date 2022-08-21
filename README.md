@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @luizeduardo7
 - 👀 I’m interested in data science
 - 🌱 I’m currently learning computer science
-- 📫 How to reach me luisedu112011@hotmail.com
+- 📫 How to reach me luisedu11201184@gmail.com
